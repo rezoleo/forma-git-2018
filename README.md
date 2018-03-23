@@ -4,6 +4,4 @@
 - @Ria33
 - @Jokerjoker91
 - @Inao0
-
-# MEGA EDIT BY JOKER
-Merci. A très bientôt j'espère.
+- @Ziman l'espion
